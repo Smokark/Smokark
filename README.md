@@ -2,3 +2,10 @@ Hola soy Diego Marre, mi nickname es smokark, tengo 20 años y soy de Argentina.
 https://linktr.ee/DiegoMarre
 Instagram:  diegomarre_
 Mail: Marrediego@hotmail.com
+
+
+Hi, I'm Diego Marre, my nickname is smokark, I'm 20 years old and I'm from Argentina. I am interested in cryptocurrencies, digital marketing, digital project management, graphic design and I also have knowledge and courses on these topics. I am currently learning game design and development at the University of Mendoza, Argentina and I am the Ceo of the CryptoWolf trading academy. I seek to collaborate in any company or project that needs personnel in the aforementioned topics. You can contact me:
+
+https://linktr.ee/DiegoMarre
+Instagram:  diegomarre_
+Mail: Marrediego@hotmail.com
